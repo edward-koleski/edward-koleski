@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @edward-koleski
-- 👀 I’m interested in ... synthetic biology
+- 👀 I’m interested in ... synthetic biology and rock music
 - 🌱 I’m currently learning ... metabolic engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...edward.koleski@gmail.com
